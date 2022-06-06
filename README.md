@@ -1,0 +1,1 @@
+# yasumijapan.github.io
